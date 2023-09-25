@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @IgnacioSRE
+- 👀 I’m interested in everything AI
+- 🌱 I’m currently learning everything I can get my hands on
